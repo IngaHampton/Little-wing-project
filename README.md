@@ -14,4 +14,4 @@
 
 [After effects Animation](https://www.flickr.com/photos/128425558@N08/22959887275/in/dateposted-public/)
 
-[Game PDF]()
+[Game PDF](https://www.dropbox.com/s/iovvg9sn271yjo3/Little-wing-game-wing%27n-it.pdf?dl=0)
